@@ -1,1 +1,1 @@
-👋 Hi, I’m @surykartka
+🐛 Hi, I’m @surykartka
